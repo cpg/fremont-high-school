@@ -1,4 +1,6 @@
-# Updates for Fremont High School tennis courts
+# Fremont High School tennis courts
+
+Misc logs (starting mid-2015) about the FHS tennis courts.
 
 May 28, 2015
 ============
