@@ -4,11 +4,11 @@ Misc logs (starting mid-2015) about the FHS tennis courts.
 
 May 28, 2015
 ============
-Replaced broken carabiners for new ones in courts 1, 2 and 5.
+Replaced broken carabiners for new ones in courts 1, 2 and 5. :clap:
 
 June 11, 2015
 =============
-Repaired the center strap by a shoe repair man in court 2, which was broken and was tied in a knot.
+Repaired the center strap by a shoe repair shop in court 2, which was broken and was tied in a knot. :clap:
 
 July 2, 2015
 ============
