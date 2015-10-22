@@ -2,6 +2,16 @@
 
 Misc logs (starting mid-2015) about the FHS tennis courts.
 
+Oct 20, 2015
+============
+Reported to school coaches a possible issue with an open lock on the gate to the courts.
+Collected all can tops left around (like 12 of them).
+Collected SCHS first-aid kit from JV coach left at FHS and returned it to coach Julie
+
+Oct 12, 2015
+============
+Called city of Sunnyvale, reporting 5 bad lights at FHS (one of them intermitently) and 4 at Mango park.
+
 May 28, 2015
 ============
 Replaced broken carabiners for new ones in courts 1, 2 and 5. :clap:
