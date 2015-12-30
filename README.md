@@ -2,6 +2,24 @@
 
 Misc logs (starting mid-2015) about the FHS tennis courts.
 
+Dec 19, 2015
+============
+Some tournament (in the last few days, ) present in the courts without reservation,
+http://dl.dropbox.com/u/364883/Screenshots/xfrk.png
+
+As usual, they left a lot of garbage in and around the courts:
+http://dl.dropbox.com/u/364883/Screenshots/tdtl.png
+
+Dec 3, 2015
+===========
+Reported to coach John M. that the center strap in court 6 (2nd from the left) is broken, tied in a knot. It may not last for long. He reported he replaced that court's strap already once not long ago. He also volunteered that they have order large brooms and some leaf blower.
+
+Nov 3, 2015
+===========
+Coach John M. reported that they will close the lock in the gate. He said that they have replacement center straps, etc., so he would like it if we report any issues so he can fix them.
+
+About the lights, they will attempt to submit a request through his AD to the city.
+
 Oct 20, 2015
 ============
 Reported to school coaches a possible issue with an open lock on the gate to the courts.
